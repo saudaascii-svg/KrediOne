@@ -1,2 +1,2 @@
 # KrediOne
-Cara pembatalan pinjaman di KrediOne
+Cara pembatalan pinjaman di KrediOne  Cara untuk membatalkan pinjaman Kredione, bisa kamu lakukan dengan cara menghubungi Call Center resmi Kredione via WhatsApp di nomor 0853-9319-3291Cara Membatalkan Pinjaman Kredione Cara untuk membatalkan pinjaman Kredione, bisa kamu lakukan dengan cara menghubungi Call Center resmi Kredione via WhatsApp di nomor 0853-9319-3291, siapkan data diri dan alasan kamu ingin membatalkan pinjaman, siapkan data diri dan alasan kamu ingin membatalkan pinjaman
